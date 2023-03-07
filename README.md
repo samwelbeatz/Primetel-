@@ -1,0 +1,1 @@
+# Primetel is a telemedical company that seeks to improve access to basic healthcare services in rural areas of Tanzania
